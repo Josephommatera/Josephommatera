@@ -5,4 +5,3 @@
 - 📫 How to reach me +254 702202264,ommaterajoseph83@gmail.com 
 - 😄 Pronou:He
 - ⚡ Fun fact🧑‍🍳aiming to be an International cook 
-Josephommatera/Josephommatera is a ✨ special ✨ repository because its `README.md`GitHub profile 
